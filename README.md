@@ -1,6 +1,6 @@
 Hi, I'm Catalunha.
 
-Limited, but without a doubt: Struggling to follow Jesus Christ, be a good husband, a present father, and a relevant collaborator.
+Limited, but without a doubt: Striving to follow Jesus Christ, be a good husband, a present father, and a relevant collaborator.
 
 😍 I love developing computational solutions that help people.
 
